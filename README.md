@@ -1,2 +1,0 @@
-# kenemerut.github.io
-blebleble
